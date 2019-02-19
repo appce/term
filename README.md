@@ -1,3 +1,8 @@
+Política de Privacidade do **Appce - Aplicativos e Cia**
+========================================================
+
+Este Aplicativo recolhe alguns Dados Pessoais dos Usuários.
+
 Resumo da Política de privacidade
 ---------------------------------
 
